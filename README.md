@@ -1,2 +1,2 @@
-Phần Mềm Lỏ Quản Lý Máy Tính Qua Telegram :))
-Hướng Dẫn Setup Hãy Ib Qua Telegram @DucThinhEXE dùm toii nha:3
+Phần Mềm malware lỏ hacking máy tính có thể bỏ qua windown Defender :))
+Hướng Dẫn Setup Hãy Ib Em Thong nha:3
